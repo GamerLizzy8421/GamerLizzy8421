@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @GamerLizzy8421
+- 👀 I’m interested in coding, animals, art, and video games
+- 🌱 I’m currently learning Java and Python
+- 📫 How to reach me @FlyinFoxStudios on Twitter
+- 😄 Pronouns: Please ask
+- ⚡ Fun fact: I once had 30 at once
